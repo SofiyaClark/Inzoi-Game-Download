@@ -18,7 +18,7 @@ You can purchase and download inZOI from these trusted platforms:([Steam Communi
 inZOI allows players to create and control virtual individuals, known as Zois, guiding them through various life scenarios in richly detailed cities. With advanced character customization, AI-driven behaviors, and interactive environments, players can build homes, pursue careers, and form relationships, crafting unique life stories for their Zois.([GamesRadar+][2])
 
 ---
-## [🚀✅✔️inzoi game download]((https://gamespent.com/tyranny-pc-game-download/))
+## [🚀✅✔️inzoi game download](https://gamespent.com/tyranny-pc-game-download/)
 
 ## How to Get the Game
 
